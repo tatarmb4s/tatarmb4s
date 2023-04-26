@@ -1,1 +1,1 @@
-https://tatarmb.tk/
+https://tatarmb.hu/
